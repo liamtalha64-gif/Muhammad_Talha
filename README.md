@@ -27,11 +27,10 @@ Here are some of my featured projects:
 
 ## 📫 Contact  
 
+- **Email**: liamtalha64@gmail.com  
 - **LinkedIn**: [Your LinkedIn Profile Link]  
-- **Email**: your.email@example.com  
 
 ---
 
 ⭐️ Check out my repositories and feel free to connect!  
 
-⭐️ Check out my repositories and feel free to connect!
